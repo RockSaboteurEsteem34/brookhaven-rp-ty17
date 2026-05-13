@@ -1,4 +1,4 @@
-#  
+#  Experience brookhaven rp like never before with brookhaven rp updated Script, the #1 Script. Includes god mode and undetectable for unbeatable
 
 
 
